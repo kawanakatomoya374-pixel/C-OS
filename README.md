@@ -1,3 +1,5 @@
+==The following statement is not mine, it does not reflect my views-
+
 制作者
 
 ワイ＆Gemini
